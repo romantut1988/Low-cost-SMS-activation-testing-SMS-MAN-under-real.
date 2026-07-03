@@ -1,5 +1,4 @@
 # [Low-cost-SMS-activation-testing-SMS-MAN-under-real.](https://sms-man.com/?ref=romantut)
-# sms-activate review
 
 ## [KEYWORD] sms-activate review
 
